@@ -2,7 +2,7 @@
 
 DFL 25 APK es una aplicación imprescindible para los amantes del fútbol que buscan una experiencia realista y emocionante en sus dispositivos Android. Este juego se destaca por sus gráficos de alta calidad y una jugabilidad inmersiva que refleja las ligas de fútbol reales, proporcionando a los usuarios una experiencia auténtica y emocionante desde cualquier lugar. Con DFL 25 APK, puedes gestionar equipos, participar en torneos, y vivir la adrenalina del fútbol en la palma de tu mano.
 
-## Descargar <a href="https://aloapk.com/dfl-25/">DFL 25 APK</a>
+## Descargar: <a href="https://aloapk.com/dfl-25/">DFL 25 APK</a>
 
 ![image](https://github.com/user-attachments/assets/b31f7641-c963-44a9-bfb8-d26c1fbb1467)
 
